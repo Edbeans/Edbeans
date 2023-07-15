@@ -30,7 +30,7 @@ I have a passion for coding because of the difficult challenges we solve on a da
 Before I became an avid programmer, I was an external auditor where I conducted reviews and made impartial evaluations of my clients' financial statements. Through this career, I have developed great team communication and leadership traits delivering high quality results. I was also a food server at one of my favorite restaurants in the city, Burma Superstar!  
 
 Aside from coding, I am a fitness and nutritional aficionado, enjoy learning and discovering all things about self improvement, and love hanging out with friends. 
-Lets connect through [LinkedIn](https://www.linkedin.com/in/ying-edward/) or you may contact my email edwardying98@gmail.com!
+Let's connect through [LinkedIn](https://www.linkedin.com/in/ying-edward/) or you may contact my email edwardying98@gmail.com!
 
 ---
 
